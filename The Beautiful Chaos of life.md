@@ -1,4 +1,4 @@
-Camouflaged
+**Camouflaged**
 
 
 In all chaotic beauty lies a wounded work of art.
